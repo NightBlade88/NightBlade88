@@ -10,6 +10,6 @@ I design and build whatever I can imagine
 
 
 * Facts :
-* I love coffee and music
+* I Like coffee and music
 * I enjoy playing video games.
 * A gym rat 
